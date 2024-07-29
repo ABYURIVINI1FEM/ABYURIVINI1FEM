@@ -1,3 +1,3 @@
 ## Boas vindas a minha vida ❤️
 
-Eu amo a ´Nicoli Chavier´
+Eu amo a 'Nicoli Chavier'
